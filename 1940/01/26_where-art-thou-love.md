@@ -32,6 +32,6 @@ I seek thee. Love!
 I know thee. Love!
   My vision clears; the wond'rous, star-filled night,
   Has glorified the mortal earth He trod.
-  Mine eyes can see, faitli has restored my sight—
+  Mine eyes can see, faith has restored my sight—
   I know thee now, dear Love, for thou art God!
 ```
